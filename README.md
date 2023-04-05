@@ -1,1 +1,1 @@
-### A newborn ownl on its journey to become The Wise Owl.
+### A newborn owl on its journey to become The Wise Owl.
